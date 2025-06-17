@@ -1,1 +1,10 @@
-# MARTIAL-GOD-REGRESSED-TO-LEVEL-2
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter-31.CBZ
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter%2032.cbz
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter-33.CBZ
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter-34.CBZ
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter-35.CBZ
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter%2036.cbz
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter%2037.cbz
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter-38.CBZ
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter%2039.cbz
+https://github.com/Ivan010619/MARTIAL-GOD-REGRESSED-TO-LEVEL-2/raw/refs/heads/main/Chapter%2040.cbz
